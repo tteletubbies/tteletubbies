@@ -1,3 +1,1 @@
-![](https://cdn.phototourl.com/free/2026-09-08-1286a3ac-1717-4ab1-b7c3-01c1c21ef8d4.jpg)
-
-<p align="center">birb <3
+![](https://cdn.phototourl.com/free/2026-09-09-a0acb597-a801-4c81-8572-ea7ab1991935.jpg)
