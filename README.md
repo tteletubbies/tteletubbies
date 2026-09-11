@@ -1,1 +1,1 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkyurfddptcurlliwkqwil5xt4&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=light)](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkyurfddptcurlliwkqwil5xt4&redirect=true)
+![](https://cdn.phototourl.com/free/2026-09-11-d8b295ce-4b50-4285-ac77-05c37005027e.jpg)
